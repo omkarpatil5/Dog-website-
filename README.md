@@ -1,2 +1,2 @@
 # Dog-website-
-The place where dogs hang out 
+The place where dogs loves to hang out 
